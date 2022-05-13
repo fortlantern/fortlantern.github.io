@@ -1,2 +1,1 @@
-# fortlantern.github.io
-Fort Lantern
+# Coming soon
